@@ -1,1 +1,0 @@
-# Samandrag_kap4
